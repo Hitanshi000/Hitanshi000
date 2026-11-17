@@ -43,7 +43,7 @@ I'm continuously working on improving my problem-solving abilities, strengthenin
 
 ### Connect
 
-- **LinkedIn:** https://www.linkedin.com/in/hitanshi-goswami-16a50b304/
+- **LinkedIn:** [Hitansh Goswami](https://www.linkedin.com/in/hitanshi-goswami-16a50b304/)
 - **GitHub:** [Hitanshi000](https://github.com/Hitanshi000)
 
 ---
